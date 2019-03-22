@@ -1,9 +1,10 @@
 # ae86在线视频 最新地址发布 
 ## 网站永久入口：http://ae86.us          
-## ⭐️ 👉 地址一 ：httpS://ae86x.com
-## ⭐️ 👉 地址二 ：http://ae-86.me
+## ⭐️ 👉 地址一 ：httpS://ae86x.com  （https）
+## ⭐️ 👉 地址二 ：http://ae-86.me     （https）
+##  即将作废的地址：~~http://ae8601.com~~ （中国区域屏蔽）
 ## ⭐️ 👉 地址三 ：正在更新中......
-## 导 航 永 久 域 名1   http://86fabu.com
+## 导 航 永 久 域 名1   http://86fabu.net
 ## 导 航 永 久 域 名2   http://86fabu.cn   
 ## 备用导航 ：http://86fabu.net
 ## ‼️請使用Ctrl+D進行收藏本站!|电脑/Ipad/手机在线播放‼️
