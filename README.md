@@ -1,5 +1,5 @@
 # ae86在线视频 最新地址发布 
-## 网站永久入口：http://ae86.us          
+## 网站永久入口：http://ae86.tv         
 ## ⭐️ 👉 地址一 ：httpS://ae86sb.com  （https）
 ## ⭐️ 👉 地址二 ：http://ae-86.me     （https）
 ##  即将作废的地址：~~http://ae86x.com~~ （中国区域屏蔽）
